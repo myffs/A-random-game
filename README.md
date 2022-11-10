@@ -1,2 +1,2 @@
 # A-random-game
-junk shit
+idk
